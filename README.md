@@ -1,2 +1,2 @@
 # CV
-Apparently some people want to see your CV.
+Reminder to self: please keep this updated. Thanks.
